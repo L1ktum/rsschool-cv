@@ -7,5 +7,6 @@
 * Programming skills: No experience
 * Job: Digital Marketing
 * Motivation: This profession is interesting for me
+* Hobby: Talk with my friends in "carbox"
 
-**Thanks fo attention**
+**Thanks for attention**
