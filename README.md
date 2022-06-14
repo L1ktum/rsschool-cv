@@ -1,1 +1,1 @@
-# rsschool-cv
+https://L1ktum.github.io/rsschool-cv
